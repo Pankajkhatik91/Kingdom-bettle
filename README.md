@@ -1,2 +1,2 @@
-# Kingdom-bettle
+# Kingdom-conquest
 Fight, Protect and Rise
